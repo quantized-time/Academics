@@ -1,1 +1,1 @@
-We had three 50 mark quizzes out which best 2 were taken, concluding with a 100 mark endsemester examination.
+We had three 50 mark quizzes out which best 2 were taken, concluding with a 100 mark endsemester examination. If you find any errors or have any comments, please let me know at dhruv.kaushik998@gmail.com.
